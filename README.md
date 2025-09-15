@@ -70,7 +70,6 @@
 
 📌 *“In God we trust, all others must bring data.”* – W. Edwards Deming  
   
-![Meme](https://i.imgflip.com/7y5h0j.jpg)  
 
 ---
 
